@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **netravatikudla5664@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Admin/Downloads/Netravati%20S%20Kudla.pdf](file:///C:/Users/Admin/Downloads/Netravati%20S%20Kudla.pdf)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
